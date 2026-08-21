@@ -1,2 +1,0 @@
-# ITE-101
-LAST-LAST NA TOH!!!
